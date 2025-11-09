@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=edtroject&label=+woozi++&color=C1A3A3)  
+![](https://komarev.com/ghpvc/?username=edtroject&label=+cuties++&color=C1A3A3)  
 
 
 
